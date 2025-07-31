@@ -1,1 +1,1 @@
-# start-up-of-the-year
+# start-ups-of-the-year-2025
